@@ -1,6 +1,6 @@
 # 新时代的我们2023入口一二三
 
-### <a href="https://github.com/xinfue/dunp/issues/2">👉👉👉♥♥点此进入♥观看入口👈👉👉</a>
+<hr/> <a href="https://github.com/siguaha/najh/issues/2">👉👉👉♥♥点此进入♥观看入口👈👉👉</a><hr/>
 
 新时代的我们2023入口一二三
 因此经过一段时间的休息，秦斩体内的飞仙劫光已经消失了大半，被洞穿的右胸膛的伤口也已经慢慢愈合。
